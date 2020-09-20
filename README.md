@@ -72,3 +72,12 @@ The content of this list is available under CC0 public domain dedication.
 Logo is used by permission of [David Morgan-Mar](http://www.dangermouse.net/esoteric/piet/samples.html)
 
 
+
+</BR>
+
+<a href="https://golden-farm.biz/?r=1673249" target="_blank">
+<img src="https://golden-farm.biz/images/promo/en/728x90.gif"
+alt="Profit every 10 minutes!"></a>
+
+
+
